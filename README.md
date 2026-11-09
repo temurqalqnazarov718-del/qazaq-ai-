@@ -1,0 +1,2 @@
+# qazaq-ai-
+Public
